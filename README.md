@@ -2,7 +2,7 @@
 - 👀 I’m interested in: Cybersecurity
 - 🌱 I’m currently learning: Python
 - 📫 How to reach me: hjbuckle2002@gmail.com
-- 😄 Pronouns: he/him
+- 😄 Pronouns: he/they
 - ⚡ Fun fact: Massive Jurassic Park Fan
 
 <!---
